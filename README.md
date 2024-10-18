@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning Hacking
 - 💞️ I’m looking to collaborate on Black Hat Hacker's Group
 - 📫 How to reach me: DM me on Instagram- @rp_jiraiya
-- 😄 Pronouns: ...
 - ⚡ Fun fact: Learn ileegal hacking with me.
 
 <!---
